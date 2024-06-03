@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning french
 - 💞️ I’m looking to collaborate on create a pokemon 
 - 📫 How to reach me @bryanloer0221 in insta
-- 😄 Pronouns: 
+- 😄 Pronouns: Love Laugh Laufey
+- 
 - ⚡ Fun fact: I love laufey
 
 <!---
